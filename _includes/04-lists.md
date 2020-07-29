@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+#Anime!!
+*DeathNote
+  *L Lawliet
+*One Punch Man
+  *Saitama

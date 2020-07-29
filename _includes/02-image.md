@@ -1,1 +1,1 @@
-![Image of Just An Ordinary Guy ](https://images.app.goo.gl/YWiGdkppJzdDUV2u6)
+![Image of Just An Ordinary Guy ](imgur.com/a/QrmfKiI)

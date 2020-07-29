@@ -1,1 +1,1 @@
-![Image of Just An Ordinary Guy ](https://imgur.com/a/QrmfKiI)
+![Simply Copying](https://octodex.github.com/images/yaktocat.png)
